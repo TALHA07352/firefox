@@ -1,2 +1,2 @@
 # firefox
-ygyuvgbft
+CHANGE TAB PICTURE AS YOUR WISH
